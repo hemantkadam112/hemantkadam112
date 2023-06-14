@@ -23,8 +23,6 @@
 
 - 📫 How to reach me **Contact@ainertia.in**
 
-- ⚡ Fun fact **I Guide People how to Make Money Online Through Blogging on my "Blogger Hemant" Youtube Channel**
-
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
 <!-- BLOG-POST-LIST:END -->
